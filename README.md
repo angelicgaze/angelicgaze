@@ -1,5 +1,4 @@
-![fishes in the ocean](https://github.com/user-attachments/assets/8b01330a-16bc-4c9e-8598-20fbe880d979)
-
+![xingqiu](https://github.com/user-attachments/assets/f855519a-08b5-4d7b-8f01-c5be1522ee46)
 
 <!---
 angelicgaze/angelicgaze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
